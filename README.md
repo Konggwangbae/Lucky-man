@@ -1,1 +1,1 @@
-# Lucky-gay
+# Lucky-man
